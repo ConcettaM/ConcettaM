@@ -20,7 +20,7 @@ While my educational background is in Literature and Foreign Languages, I bring 
 
 ### 📫 How to Reach Me
 
-- LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/your-linkedin-profile)
+- LinkedIn:https://www.linkedin.com/in/concettamodesto/
 - Email: tinamodesto91@gmail.com
 
 ### 🌐 More about Me
